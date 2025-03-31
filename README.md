@@ -1,4 +1,4 @@
-# presentación de mi vida
+# Presentación de mi vida
 Mi nombre completo es Nicolas Ezequiel Pipke, tengo 21 años y vivo en capital federal 
 
 Mi legajo: 2140093
